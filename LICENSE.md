@@ -1,4 +1,4 @@
-# 
+# premium Adobe Photoshop para PC scripts es el mejor Adobe Photoshop para PC scripts con restauración de fotos y historial de versiones. Seguro, confiable y optimizado para el
 
 
 
